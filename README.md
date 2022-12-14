@@ -36,7 +36,7 @@
 
 Can possibly generate you nitro overtime. Its not super fast and u might want proxies so yeah go ahead mess around with it.
 
-
+If you need proxy go to google and search for free http proxy list
 
 
 
